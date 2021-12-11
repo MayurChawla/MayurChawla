@@ -18,6 +18,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: He/Him...
 - ⚡ Fun fact: We all are trying to make our lives better, I am trying to do it using programming....
 - 🔫 Good Counter Strike Player.
-
-⭐ 6 Words to describe myself : 
-Curious, Persistent, Mischevious, Helping/Inspiring, Hardworking, Dreamer
+- ⭐ 6 Words to describe myself : 
+     Curious, Persistent, Mischevious, Helping/Inspiring, Hardworking, Dreamer
